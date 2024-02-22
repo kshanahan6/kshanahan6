@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Learning
 - 🌱 I’m currently learning ... Liberty University
 - 💞️ I’m looking to collaborate on ...Github
-- 📫 How to reach me ...kshanahan6@liberty.edu
+- 📫 How to reach me ... kshanahan6@liberty.edu
 - 😄 Pronouns: ...He
 - ⚡ Fun fact: ...Pro Player
 
